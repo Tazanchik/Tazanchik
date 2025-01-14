@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Tazanchik)|
 - 👀 I’m interested in .
-- 🌱 I’m currently learning ...srthtehbrth
+- 🌱 I’m currently learning ...bvcd6i7gby0u8iop
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me .j]ipudsfghstrh
 - 😄 Pronouns: .
