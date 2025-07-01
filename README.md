@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Tazanchik)|
 - 👀 I’m interested in .
-- 🌱 I’m currently learning ...juythgsdhtgtdrhb
+- 🌱 I’m currently learning ...swtrydctugybhj
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ngngndfyn
 - 
